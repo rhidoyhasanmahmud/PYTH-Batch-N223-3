@@ -2,4 +2,4 @@
 
 1. mohammad daloar hossain (Tangail)
 
-2. MD ENAMUL HAQUE SHAMIM (PORTUGAL)
+2. MD ENAMUL HAQUE SHAMIM (LISBON, PORTUGAL)
