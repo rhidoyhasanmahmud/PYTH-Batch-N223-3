@@ -14,4 +14,4 @@
 
 7. Mosarab Hossen (India)
 
-8.
+8. Masad Rayan (Chittagong)
